@@ -1,2 +1,3 @@
 Once upon a time there was a cap seller who used to sell very good caps at low price. He was passing through a jungle which was known to be kingdom of monkeys.
-The cap seller was passing by the junglr. He was very thirsty. He went near the river to drink some water. After that he wanted to rest as he has worked tremendously & sold lots of caps. 
+The cap seller was passing by the jungle. He was very thirsty. He went near the river to drink some water. After that he wanted to rest as he has worked tremendously & sold lots of caps. 
+He went to rest under a tree and at night all the monkeys came & took his caps.
